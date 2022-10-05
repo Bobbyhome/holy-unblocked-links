@@ -1,2 +1,2 @@
 # holy-unblocked-links
-Links holy unblocker
+Links for holy unblocker
